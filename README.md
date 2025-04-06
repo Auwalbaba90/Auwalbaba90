@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Auwalbaba90
 - 👀 I’m interested in Software Development, Graphics Design, Blockchain Technology, Hashgraph Distributed Ledger Technologies, Global Improvements Etc.
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning and Working ...
 - 💞️ I’m looking to collaborate on Global Developments to change world Better.
 - 📫 How to reach me. you should be an expert, talent and critical thinking to solve a particular Problems in the World.
 
